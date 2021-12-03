@@ -6,5 +6,5 @@
 3. Flash Reverso
 4. Doomsday
 5. DeadShot
-
-6. Spiderman
+6. Antonio Recio
+7. German Palomares
